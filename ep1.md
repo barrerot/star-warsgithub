@@ -1,0 +1,1 @@
+Al final, *Amidala* y los _Jedi_ acaban en un planeta llamado _Tatooine_ donde se encuentran con un niño muy especial llamado *Anakin Skywalker*.
